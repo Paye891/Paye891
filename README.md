@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 I’m currently working on movie reviews and funny content creation.
+- 🌱 I’m currently learning about film analysis and comedic storytelling techniques.
+- 👯 I’m looking to collaborate on creative projects related to movies and humor.
+- 🤔 I’m looking for help with content ideas and video editing techniques.
+- 💬 Ask me about my favorite movies and what makes them funny!
+- 📫 How to reach me: riyadpayel301099@email.com
+- 😄 Pronouns: he/him, she/her
+- ⚡ Fun fact: I love watching movies and making people laugh with my content!
